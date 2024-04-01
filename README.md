@@ -1,4 +1,4 @@
-# IT-Purple-Hack
+# IT-Purple-Hack (4 место)
 
 *MISIS and Mr. Smith team*
 
